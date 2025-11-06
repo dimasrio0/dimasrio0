@@ -26,7 +26,7 @@ I specialize in building modern **web and mobile applications** with a focus on 
 
 📫 **Let's Connect**  
 - Portfolio: [https://dimasrio.space](https://dimasrio.space)  
-- LinkedIn: [linkedin.com/in/dimasrio](https://linkedin.com/in/dimasrio0)  
+- LinkedIn: [linkedin.com/in/dimasrio](https://linkedin.com/in/dimasrio)  
 - Email: **drio.setiawan06@gmail.com**
 
 ---
